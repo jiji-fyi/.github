@@ -1,1 +1,1 @@
-# jiji.fyi (soon)
+# 🚀 jiji.fyi (soon)
